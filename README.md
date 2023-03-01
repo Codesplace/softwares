@@ -35,33 +35,33 @@ OPPO官方出的音乐助眠软件，界面贼好看，但我有网易云会员�
 <br><br><a href="https://fudan.lanzoub.com/iq5p60oz0nad">★***Neat Download Manager汉化版***</a>  
 多线程下载Neat Download Manager汉化版
 <br><br><a href="https://fudan.lanzoub.com/iwGe90oz11if">★***Mathtype 6***</a>  
-数学编辑器
+世界第一的数学编辑器，不多解释
 <br><br><a href="https://fudan.lanzoub.com/iFnh30oz19ej">★***Win系统右键获取超级管理员权限***</a>  
 每次调权限太麻烦我就用的这个
-<br><br><a href="https://fudan.lanzoub.com/iNrAm0oz2f3a">★***Window系统更换全局字体***</a>  
+<br><br><a href="https://fudan.lanzoub.com/iNrAm0oz2f3a">★***noMeiryoUI***</a>  
 Window系统更换全局字体,好像是个日本人开发的
 <br><br><a href="https://fudan.lanzoub.com/i7qsS0oz2l4h">★***Win11概念版鼠标***</a>  
-贼好看的
+贼好看的,还是高清的，比Windows原版的好看太多
 <br><br><a href="https://fudan.lanzoub.com/ielZX0oz2sza">微信防撤回补丁</a>  
 一个exe文件，只对部分版本有效，现在最新的3.9版本能用
 <br><br><a href="https://fudan.lanzoub.com/iG4sK0oz39da">***antdownload 1.0.4***</a>  
-百度网盘下载器
+百度网盘下载器，这种东西很容易失效，建议去搜最新的，或者在edge用软件小妹的插件
 <br><br><a href="https://fudan.lanzoub.com/iLrLf0oz3pyh">***ReNamer***</a>  
-文件批量重命名工具便携版
+文件批量重命名工具便携版，我用的很少，但是功能确实强大
 <br><br><a href="https://fudan.lanzoub.com/iInPR0oz4ina">★***Snipaste***</a>  
-特别好用的第三方截图工具
+特别好用的第三方截图工具，可以打爆Windows原版自带的Screenshot
 <br><br><a href="https://fudan.lanzoub.com/iaD2o0oz4ref">★***解决桌面图标变白的bat文件***</a>  
-一键解决桌面图标变白
+一键解决桌面图标变白，相信大家都碰到过类似的情况
 <br><br><a href="https://fudan.lanzoub.com/i1Iu20oz5e3c">***WSA工具箱***</a>  
 搭配Window安卓子系统使用
 <br><br><a href="https://fudan.lanzoub.com/isfVi0oz60pg">★***消除快捷方式箭头***</a>  
-桌面美化
+桌面美化，强迫症患者强烈推荐
 <br><br><a href="https://fudan.lanzoub.com/iBZVv0oz682b">***手写模拟器***</a>  
 用程序生成手写字体的文稿，我有时候不想手写就用的这个
 <br><br><a href="https://fudan.lanzoub.com/iv9xC0oz6emh">***MiSans***</a>  
-小米官方字体包
+小米官方字体包，个人认为没有OPPOSans好看
 <br><br><a href="https://fudan.lanzoub.com/i3phi0oz6epa">***OPPOSans***</a>  
-OPPO官方字体包
+OPPO官方字体包，可以搭配noMeiryoUI使用
 <br><br><a href="https://fudan.lanzoub.com/iR9Vi0oz6esd">★***起源字体包***</a>  
 很好看的字体包，字体比较粗，我手机电脑上都在用
 <br><br><a href="https://fudan.lanzoub.com/iYkHS0oz6e8d">★***Topmost***</a>   
