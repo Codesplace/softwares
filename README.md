@@ -10,3 +10,4 @@
 <br><a href="https://fudan.lanzoub.com/iq5p60oz0nad">Neat Download Manager汉化版</a>
 <br><a href="https://fudan.lanzoub.com/iwGe90oz11if">Mathtype6</a>
 <br><a href="https://fudan.lanzoub.com/iFnh30oz19ej">右键获取超级管理员权限</a>
+<br><a href="https://fudan.lanzoub.com/iNrAm0oz2f3a">Window系统更换全局字体</a>
