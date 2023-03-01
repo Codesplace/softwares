@@ -16,8 +16,8 @@
 <br><a href="https://fudan.lanzoub.com/ielZX0oz2sza">微信防撤回补丁</a>
 <br><a href="https://fudan.lanzoub.com/iG4sK0oz39da">百度网盘下载器antdownload 1.0.4</a>
 <br><a href="https://fudan.lanzoub.com/iLrLf0oz3pyh">文件批量重命名工具ReNamer便携版</a>
-<br><a href="">待填</a>
-<br><a href="">待填</a>
+<br><a href="https://fudan.lanzoub.com/iInPR0oz4ina">特别好用的第三方截图工具Snipaste</a>
+<br><a href="https://fudan.lanzoub.com/iaD2o0oz4ref">桌面图标变白</a>
 <br><a href="">待填</a>
 <br><a href="">待填</a>
 <br><a href="">待填</a>
