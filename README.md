@@ -7,7 +7,7 @@
 ## 电脑软件
 <a href="https://fudan.lanzoub.com/iYzZ10jc8f4j">百度文库下载器</a>
 <br><a href="https://fudan.lanzoub.com/i7HFS086ykqf">OneDrive for Business直链生成工具</a>
-<br><a href="https://fudan.lanzoub.com/i7HFS086ykqf">Bandizip的最后一个免费版本</a>
+<br><a href="https://fudan.lanzoub.com/inFbk0oz09wb">Bandizip的最后一个免费版本</a>
 <br><a href="https://fudan.lanzoub.com/iq5p60oz0nad">多线程下载工具Neat Download Manager汉化版</a>
 <br><a href="https://fudan.lanzoub.com/iwGe90oz11if">Mathtype 6</a>
 <br><a href="https://fudan.lanzoub.com/iFnh30oz19ej">右键获取超级管理员权限</a>
