@@ -5,3 +5,4 @@
 <br><a href="https://yxssp.lanzoui.com/b646033/?%3E">滴答清单高级版(45c3)</a>
 
 <h2>电脑软件</h2>
+<br><a href="https://yxssp.lanzoui.com/b646033/?%3E">百度文库下载器</a>
