@@ -1,2 +1,6 @@
-# softwares
-我整理的一些实用软件的仓库
+<h2>手机软件</h2>
+<a href="https://fudan.lanzoub.com/ipfXb086vphi">酷安清爽版 (846r)</a>
+<br><a href="https://fudan.lanzoub.com/ib3fZ0opunud">高数计算器 Wolfram Mathematica Pro (1ipm)</a>
+<br><a href="https://fudan.lanzoub.com/i8PTB04vqtof">VIP视频解析器(38u7)</a>
+
+<h2>电脑软件</h2>
