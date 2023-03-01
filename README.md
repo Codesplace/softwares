@@ -1,4 +1,4 @@
-## 注意：大学期间收藏的软件(主要是电脑软件,少部分可能失效了,可以在<a href="www.bing.com">Bing搜同名</a>)，互联网资源均非本人开发，仅供逆向工程学习，侵权或者错误链接请联系elem@duck.com更换
+## 注意：大学期间收藏的软件(主要是电脑软件,少部分可能失效了,可以在<a href="www.bing.com">Bing</a>搜同名)，互联网资源均非本人开发，仅供逆向工程学习，侵权或者错误链接请联系elem@duck.com更换
 
 ## 手机软件
 <a href="https://fudan.lanzoub.com/i8Yew086wsza">手机数据恢复大师高级版 (key:h96z)</a>
