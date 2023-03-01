@@ -2,11 +2,11 @@
 
 ## 手机软件
 <a href="https://fudan.lanzoub.com/i8Yew086wsza">手机数据恢复大师高级版 (key:h96z)</a>
-<br><a href="https://fudan.lanzoub.com/ib3fZ0opunud">高数积分计算器 Wolfram Mathematica Pro (key:1ipm)</a>
+<br><a href="https://fudan.lanzoub.com/ib3fZ0opunud">高考考研学高数必备的导数积分计算器 Wolfram Mathematica Pro (key:1ipm)</a>
 <br><a href="https://fudan.lanzoub.com/i8PTB04vqtof">VIP视频解析器 (key:38u7)</a>
 <br><a href="https://yxssp.lanzoui.com/b646033/?%3E">滴答清单高级版 (key:45c3)</a>
 <br><a href="https://fudan.lanzoub.com/ihNdE082vdgb">OPPO官方出的O Relax 音乐助眠软件 (key:gnbs)</a>
-<br><a href="">MIX滤镜大师</a>
+<br><a href="https://fudan.lanzoub.com/iSQd7082uote">MIX滤镜大师 (key:dg3f)</a>
 <br><a href="">待填</a>
 <br><a href="">待填</a>
 <br><a href="">待填</a>
