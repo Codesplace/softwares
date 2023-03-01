@@ -9,10 +9,10 @@
 <br><a href="https://fudan.lanzoub.com/i7HFS086ykqf">OneDrive for Business直链生成工具</a>
 <br><a href="https://fudan.lanzoub.com/inFbk0oz09wb">替代WinRAR,Bandizip的最后一个免费版本</a>
 <br><a href="https://fudan.lanzoub.com/iq5p60oz0nad">多线程下载Neat Download Manager汉化版</a>
-<br><a href="https://fudan.lanzoub.com/iwGe90oz11if">Mathtype 6</a>
-<br><a href="https://fudan.lanzoub.com/iFnh30oz19ej">右键获取超级管理员权限</a>
+<br><a href="https://fudan.lanzoub.com/iwGe90oz11if">数学编辑器Mathtype 6</a>
+<br><a href="https://fudan.lanzoub.com/iFnh30oz19ej">Win系统右键获取超级管理员权限</a>
 <br><a href="https://fudan.lanzoub.com/iNrAm0oz2f3a">Window系统更换全局字体</a>
-<br><a href="https://fudan.lanzoub.com/i7qsS0oz2l4h">Win11概念版鼠标</a>
+<br><a href="https://fudan.lanzoub.com/i7qsS0oz2l4h">贼好看的Win11概念版鼠标</a>
 <br><a href="https://fudan.lanzoub.com/ielZX0oz2sza">微信防撤回补丁</a>
 <br><a href="https://fudan.lanzoub.com/iG4sK0oz39da">百度网盘下载器antdownload 1.0.4</a>
 <br><a href="https://fudan.lanzoub.com/iLrLf0oz3pyh">文件批量重命名工具ReNamer便携版</a>
