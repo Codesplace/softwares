@@ -1,4 +1,4 @@
-注意：大学期间收藏的软件，仅供逆向工程学习，侵权或者错误链接请联系elem@duck.com更换
+注意：大学期间收藏的软件，互联网资源均非本人开发，仅供逆向工程学习，侵权或者错误链接请联系elem@duck.com更换
 ## 手机软件
 <a href="https://fudan.lanzoub.com/ib3fZ0opunud">高数积分计算器 Wolfram Mathematica Pro (key:1ipm)</a>
 <br><a href="https://fudan.lanzoub.com/i8PTB04vqtof">VIP视频解析器 (key:38u7)</a>
@@ -19,11 +19,11 @@
 <br><a href="https://fudan.lanzoub.com/iInPR0oz4ina">特别好用的第三方截图工具Snipaste</a>
 <br><a href="https://fudan.lanzoub.com/iaD2o0oz4ref">解决桌面图标变白的bat文件</a>
 <br><a href="https://fudan.lanzoub.com/i1Iu20oz5e3c">搭配Window安卓子系统使用的WSA工具箱</a>
-<br><a href="">待填</a>
-<br><a href="">待填</a>
-<br><a href="">待填</a>
-<br><a href="">待填</a>
-<br><a href="">待填</a>
+<br><a href="https://fudan.lanzoub.com/isfVi0oz60pg">桌面美化，消除快捷方式箭头</a>
+<br><a href="https://fudan.lanzoub.com/iBZVv0oz682b">用程序生成手写字体的文稿</a>
+<br><a href="https://fudan.lanzoub.com/iv9xC0oz6emh">小米官方字体包MiSans</a>
+<br><a href="https://fudan.lanzoub.com/i3phi0oz6epa">OPPO官方字体包OPPOSans</a>
+<br><a href="https://fudan.lanzoub.com/iR9Vi0oz6esd">很好看的起源字体包</a>
 <br><a href="">待填</a>
 <br><a href="">待填</a>
 <br><a href="">待填</a>
