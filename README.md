@@ -4,7 +4,7 @@
 3. 标★为本人强烈推荐的，可以无脑下载
 
 ## 手机软件
-<a href="https://fakeloc.cc/app">★***Fake Location***</a>  
+<a href="http://fakeloc.cc/app">★***Fake Location***</a>  
 安卓最强改定位软件，薅羊毛必备，这个是正版软件的地址，正版就够用了
 <br><br><a href="https://fudan.lanzoub.com/i8Yew086wsza"> ***手机数据恢复大师*** </a>  
 高级版，没用过，可以下来试试，提取密码是h96z
