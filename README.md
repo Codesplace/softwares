@@ -4,11 +4,11 @@
 3.标★为本人强烈推荐的
 
 ## 手机软件
-<a href="https://fakeloc.cc/app">★ ***Fake Location***</a>  
+<a href="https://fakeloc.cc/app">★***Fake Location***</a>  
 安卓最强改定位软件，薅羊毛必备，这个是正版软件的地址，正版就够用了
 <br><a href="https://fudan.lanzoub.com/i8Yew086wsza"> ***手机数据恢复大师*** </a>  
 高级版，没用过，可以下来试试，提取密码是h96z
-<br><a href="https://fudan.lanzoub.com/ib3fZ0opunud">★ ***Wolfram Mathematica Pro*** </a>  
+<br><a href="https://fudan.lanzoub.com/ib3fZ0opunud">★***Wolfram Mathematica Pro*** </a>  
 高考考研学高数必备的导数积分计算器，吹爆了的软件，提取密码是1ipm 
 <br><a href="https://fudan.lanzoub.com/i8PTB04vqtof">***VIP视频解析器*** </a>  
 我自己写的，移植到电脑上去的，提取密码是38u7
