@@ -13,7 +13,7 @@
 <br><a href="https://fudan.lanzoub.com/iFnh30oz19ej">Win系统右键获取超级管理员权限</a>
 <br><a href="https://fudan.lanzoub.com/iNrAm0oz2f3a">Window系统更换全局字体</a>
 <br><a href="https://fudan.lanzoub.com/i7qsS0oz2l4h">贼好看的Win11概念版鼠标</a>
-<br><a href="https://fudan.lanzoub.com/ielZX0oz2sza">微信防撤回补丁</a>
+<br><a href="https://fudan.lanzoub.com/ielZX0oz2sza">微信防撤回补丁（一个exe文件)</a>
 <br><a href="https://fudan.lanzoub.com/iG4sK0oz39da">百度网盘下载器antdownload 1.0.4</a>
 <br><a href="https://fudan.lanzoub.com/iLrLf0oz3pyh">文件批量重命名工具ReNamer便携版</a>
 <br><a href="https://fudan.lanzoub.com/iInPR0oz4ina">特别好用的第三方截图工具Snipaste</a>
