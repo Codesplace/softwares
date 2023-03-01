@@ -9,3 +9,4 @@
 <br><a href="https://fudan.lanzoub.com/i7HFS086ykqf">Bandizip的最后一个免费版本</a>
 <br><a href="https://fudan.lanzoub.com/iq5p60oz0nad">Neat Download Manager汉化版</a>
 <br><a href="https://fudan.lanzoub.com/iwGe90oz11if">Mathtype6</a>
+<br><a href="https://fudan.lanzoub.com/iFnh30oz19ej">右键获取超级管理员权限</a>
