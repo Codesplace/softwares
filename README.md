@@ -9,7 +9,7 @@
 <br><a href="https://fudan.lanzoub.com/iSQd7082uote">MIX滤镜大师 KEY:dg3f</a>
 <br><a href="https://fudan.lanzoub.com/iYaMq082te3c">手机上用的简单PS软件 KEY:ab30</a>
 <br><a href="https://fudan.lanzoub.com/iqwEp081sfad">酷安的一个闲置项目:AH视频，有好多VIP视频 KEY:hf7q</a>
-<br><a href="">待填</a>
+<br><a href="https://fudan.lanzoub.com/i8PTB04vqtof">WPS Office 无广告专业版 KEY:38u7</a>
 <br><a href="">待填</a>
 <br><a href="">待填</a>
 <br><a href="">待填</a>
