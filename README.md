@@ -28,7 +28,7 @@ OPPO官方出的音乐助眠软件，界面贼好看，但我有网易云会员(
 ## 电脑软件(Windows)
 <a href="https://fudan.lanzoub.com/iwaiD0ozxs0b">***★Ticktick Window (国内特供的叫：滴答清单)***</a>  
 我现在自己在用的一个日程计划软件，可以配套我下面发的手机版使用
-<br><a href="https://fudan.lanzoub.com/iYzZ10jc8f4j">***百度文库下载器***</a>  
+<br><br><a href="https://fudan.lanzoub.com/iYzZ10jc8f4j">***百度文库下载器***</a>  
 前段时间试了好用的
 <br><br><a href="https://fudan.lanzoub.com/i7HFS086ykqf">***OneDrive for Business直链生成工具***</a>  
 可以缩短OFB分享链接的长度
