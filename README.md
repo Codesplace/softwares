@@ -32,16 +32,17 @@ OPPO官方出的音乐助眠软件，界面贼好看，但我有网易云会员(
 前段时间试了好用的
 <br><br><a href="https://fudan.lanzoub.com/i7HFS086ykqf">***OneDrive for Business直链生成工具***</a>  
 可以缩短OFB分享链接的长度
-<br><br><a href="https://fudan.lanzoub.com/inFbk0oz09wb">★***Bandizip***</a>  
-替代WinRAR,Bandizip的最后一个免费版本，速度最快的压缩软件
+<br><br><a href="https://fudan.lanzoub.com/inFbk0oz09wb">★***Bandizip 6.29***</a>  
+替代WinRAR，Bandizip的最后一个免费版本，速度最快的压缩软件
 <br><br><a href="https://fudan.lanzoub.com/iq5p60oz0nad">★***Neat Download Manager汉化版***</a>  
 多线程下载Neat Download Manager汉化版
 <br><br><a href="https://fudan.lanzoub.com/iwGe90oz11if">★***Mathtype 6***</a>  
 世界第一的数学编辑器，不多解释
 <br><br><a href="https://fudan.lanzoub.com/iFnh30oz19ej">★***Windows系统右键获取超级管理员权限***</a>  
 每次调权限太麻烦我就用的这个
-<br><br><a href="https://fudan.lanzoub.com/iNrAm0oz2f3a">★***noMeiryoUI***</a>  
-Windows系统更换全局字体,好像是个日本人开发的
+<br><br><a href="https://fudan.lanzoub.com/iNrAm0oz2f3a">★***noMeiryoUI 3.1.0***
+<a href="https://fudan.lanzoub.com/i3pPt0ozzlij">***★noMeiryoUI 3.1.1***</a>  
+Windows系统更换全局字体，好像是个日本人开发的
 <br><br><a href="https://fudan.lanzoub.com/i7qsS0oz2l4h">★***Windows11概念版鼠标***</a>  
 贼好看的,还是高清的，比Windows原版的好看太多
 <br><br><a href="https://fudan.lanzoub.com/ielZX0oz2sza">***微信防撤回补丁***</a>  
