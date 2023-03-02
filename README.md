@@ -60,7 +60,7 @@ OPPO官方出的音乐助眠软件，界面贼好看，但我有网易云会员(
 世界第一的数学编辑器，不多解释
 <br><br>
 - <a href="https://fudan.lanzoub.com/iFnh30oz19ej">★***Windows系统右键获取超级管理员权限***</a>  
-每次调权限太麻烦我就用的这个
+每次提示没有权限，调权限太麻烦，我就用的这个，好用的
 <br><br>
 - <a href="https://fudan.lanzoub.com/iNrAm0oz2f3a">★***noMeiryoUI 3.1.0***</a> 
 <a href="https://fudan.lanzoub.com/i3pPt0ozzlij">***★noMeiryoUI 3.1.1***</a>  
@@ -84,7 +84,7 @@ Windows系统更换全局字体，好像是个日本人开发的
 - <a href="https://fudan.lanzoub.com/iaD2o0oz4ref">★***解决桌面图标变白的bat脚本***</a>  
 一键解决桌面图标变白，相信大家都碰到过类似的情况
 <br><br>
-- <a href="https://fudan.lanzoub.com/i1Iu20oz5e3c">***WSA工具箱***</a>  
+- <a href="https://fudan.lanzoub.com/i1Iu20oz5e3c">***WSA工具箱 1.2.3.0***</a>  
 搭配Window安卓子系统使用
 <br><br>
 - <a href="https://fudan.lanzoub.com/isfVi0oz60pg">★***消除快捷方式箭头***</a>  
