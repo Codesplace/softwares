@@ -35,6 +35,9 @@ OPPO官方出的音乐助眠软件，界面贼好看，但我有网易云会员(
 没广告,激活码要你自己去网上找？提取密码是**38u7**
 
 ## 电脑软件(Windows)
+- <a href="https://fudan.lanzoub.com/iTv2g0p04frc">***百度文库下载器***</a>  
+百度文库下载器，能下载百度文库的VIP文章
+<br><br>
 - <a href="https://fudan.lanzoub.com/iwaiD0ozxs0b">***★Revo Uninstaller 2.4.2***</a>  
 强力卸载工具，我用了几年了，尽最大可能把软件删除干净
 <br><br>
