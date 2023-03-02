@@ -4,8 +4,8 @@
 3. 标★为本人强烈推荐的，可以无脑下载
 
 ## 手机软件
-<a href="http://fakeloc.cc/app">★***Fake Location***</a>  
-安卓最强改定位软件，薅羊毛必备，这个是正版软件的地址，正版就够用了
+<a href="https://fudan.lanzoub.com/iewWw0ozxh0f">★***Fake Location 1.3.1.9***</a>  
+安卓最强改定位软件，薅羊毛必备，这个是正版软件，正版就够用了,提取密码是favx
 <br><br><a href="https://fudan.lanzoub.com/i8Yew086wsza"> ***手机数据恢复大师*** </a>  
 高级版，没用过，可以下来试试，提取密码是h96z
 <br><br><a href="https://fudan.lanzoub.com/ib3fZ0opunud">★***Wolfram Mathematica Pro*** </a>  
@@ -42,7 +42,7 @@ OPPO官方出的音乐助眠软件，界面贼好看，但我有网易云会员�
 Window系统更换全局字体,好像是个日本人开发的
 <br><br><a href="https://fudan.lanzoub.com/i7qsS0oz2l4h">★***Win11概念版鼠标***</a>  
 贼好看的,还是高清的，比Windows原版的好看太多
-<br><br><a href="https://fudan.lanzoub.com/ielZX0oz2sza">微信防撤回补丁</a>  
+<br><br><a href="https://fudan.lanzoub.com/ielZX0oz2sza">***微信防撤回补丁***</a>  
 一个exe文件，只对部分版本有效，现在最新的3.9版本能用
 <br><br><a href="https://fudan.lanzoub.com/iG4sK0oz39da">***antdownload 1.0.4***</a>  
 百度网盘下载器，这种东西很容易失效，建议去搜最新的，或者在edge用软件小妹的插件
