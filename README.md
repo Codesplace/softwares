@@ -14,16 +14,16 @@
 高考考研学高数必备的图形导数积分计算器，吹爆了的软件，提取密码是**1ipm**
 <br><br>
 - <a href="https://fudan.lanzoub.com/i8PTB04vqtof">***VIP视频解析器*** </a>  
-我自己写的，移植到手机端上去的，提取密码是38u7
+我自己写的，移植到手机端上去的，提取密码是**38u7**
 <br><br>
 - <a href="https://yxssp.lanzoui.com/b646033/?%3E">★***TickTick (国内特供的叫：滴答清单)***</a>  
 我现在自己在用的一个日程计划软件，可以配套我下面发的电脑版使用,提取密码是**45c3**
 <br><br>
 - <a href="https://fudan.lanzoub.com/ihNdE082vdgb">***O Relax***</a>  
-OPPO官方出的音乐助眠软件，界面贼好看，但我有网易云会员(doge-，提取密码是**gnbs**
+OPPO官方出的音乐助眠软件，界面贼好看，但我有网易云会员(doge)，提取密码是**gnbs**
 <br><br>
 - <a href="https://fudan.lanzoub.com/iSQd7082uote">***MIX滤镜大师***</a>  
-喜欢拍照的朋友可以试一试，里面有很多滤镜，提取密码是dg3f
+喜欢拍照的朋友可以试一试，里面有很多滤镜，提取密码是**dg3f**
 <br><br>
 - <a href="https://fudan.lanzoub.com/iYaMq082te3c">***PS软件***</a>  
 手机上用的简单PS软件，电脑上的PS我也会用，但就是嫌太麻烦了，提取密码是**ab30**
