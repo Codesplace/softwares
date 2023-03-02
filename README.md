@@ -7,7 +7,7 @@
 <a href="https://fudan.lanzoub.com/iewWw0ozxh0f">★***Fake Location 1.3.1.9***</a>  
 安卓最强改定位软件，薅羊毛必备，这个是正版软件，正版就够用了,提取密码是favx
 <br><br><a href="https://fudan.lanzoub.com/i8Yew086wsza"> ***手机数据恢复大师*** </a>  
-高级版，没用过,想恢复太久之前肯定没戏，可以下来试试，提取密码是h96z
+高级版，没用过，想恢复太久之前肯定没戏，可以下来试试，提取密码是h96z
 <br><br><a href="https://fudan.lanzoub.com/ib3fZ0opunud">★***Wolfram Mathematica Pro*** </a>  
 高考考研学高数必备的图形导数积分计算器，吹爆了的软件，提取密码是1ipm 
 <br><br><a href="https://fudan.lanzoub.com/i8PTB04vqtof">***VIP视频解析器*** </a>  
