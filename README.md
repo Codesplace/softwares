@@ -15,7 +15,7 @@
 <br><br><a href="https://yxssp.lanzoui.com/b646033/?%3E">★***TickTick (国内特供的叫：滴答清单)***</a>  
 我现在自己在用的一个日程计划软件，可以配套我下面发的电脑版使用,提取密码是45c3
 <br><br><a href="https://fudan.lanzoub.com/ihNdE082vdgb">***O Relax***</a>  
-OPPO官方出的音乐助眠软件，界面贼好看，但我有网易云会员（doge)，提取密码是gnbs
+OPPO官方出的音乐助眠软件，界面贼好看，但我有网易云会员(doge-，提取密码是gnbs
 <br><br><a href="https://fudan.lanzoub.com/iSQd7082uote">***MIX滤镜大师***</a>  
 喜欢拍照的朋友可以试一试，里面有很多滤镜，提取密码是dg3f
 <br><br><a href="https://fudan.lanzoub.com/iYaMq082te3c">***PS软件***</a>  
