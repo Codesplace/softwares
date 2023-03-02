@@ -31,8 +31,8 @@ OPPO官方出的音乐助眠软件，界面贼好看，但我有网易云会员(
 - <a href="https://fudan.lanzoub.com/iqwEp081sfad">★***AH视频***</a>  
 酷安的一个闲置项目(有朋友反应失效了)，有好多VIP视频，我妈天天用这个追剧，提取密码是**hf7q**
 <br><br>
-- <a href="https://fudan.lanzoub.com/i8PTB04vqtof">***WPS Office 无广告专业版***</a>  
-没广告,激活码要你自己去网上找？提取密码是**38u7**
+- <a href="">***WPS Office 无广告专业版(稍后补链接)***</a>  
+没广告,激活码要你自己去网上找？
 
 ## 电脑软件(Windows)
 - <a href="https://fudan.lanzoub.com/iYZuf086rn6b">***蓝奏云 Windows端***</a>  
