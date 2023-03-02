@@ -69,13 +69,13 @@ Windows系统更换全局字体，好像是个日本人开发的
 - <a href="https://fudan.lanzoub.com/iG4sK0oz39da">***Antdownload 1.0.4***</a>  
 百度网盘下载器，这种东西很容易失效，建议去搜最新的，或者在edge用软件小妹的插件
 <br><br>
-- <a href="https://fudan.lanzoub.com/iFP7v0p029yb">***ReNamer***</a>  
+- <a href="https://fudan.lanzoub.com/iFP7v0p029yb">***ReNamer便携版***</a>  
 文件批量重命名工具便携版，我用的很少，但是功能确实强大
 <br><br>
 - <a href="https://fudan.lanzoub.com/iInPR0oz4ina">★***Snipaste 2.8.3-Beta***</a>  
 特别好用的第三方截图工具，可以打爆Windows原版自带的Screenshot
 <br><br>
-- <a href="https://fudan.lanzoub.com/iaD2o0oz4ref">★***解决桌面图标变白的bat文件***</a>  
+- <a href="https://fudan.lanzoub.com/iaD2o0oz4ref">★***解决桌面图标变白的bat脚本***</a>  
 一键解决桌面图标变白，相信大家都碰到过类似的情况
 <br><br>
 - <a href="https://fudan.lanzoub.com/i1Iu20oz5e3c">***WSA工具箱***</a>  
@@ -84,7 +84,7 @@ Windows系统更换全局字体，好像是个日本人开发的
 - <a href="https://fudan.lanzoub.com/isfVi0oz60pg">★***消除快捷方式箭头***</a>  
 桌面美化，强迫症患者强烈推荐
 <br><br>
-- <a href="https://fudan.lanzoub.com/iBZVv0oz682b">***手写模拟器***</a>  
+- <a href="https://fudan.lanzoub.com/iBZVv0oz682b">***手写字体模拟器***</a>  
 用程序生成手写字体的文稿，我有时候不想手写就用的这个
 <br><br>
 - <a href="https://fudan.lanzoub.com/iv9xC0oz6emh">***MiSans***</a>  
