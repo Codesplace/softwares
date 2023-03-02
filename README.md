@@ -1,7 +1,7 @@
 ## 前言
 1.大学期间收藏的软件(主要是电脑软件,少部分可能失效了,可以在<a href="https://www.bing.com">必应</a>搜相应的名字)  
 2.互联网资源，均非本人开发，仅供逆向工程学习，侵权或者错误链接请联系<a href="mailto:elem@duck.com">我的邮箱</a>更换  
-3. 标★为本人强烈推荐的，可以无脑下载
+3.标★为本人强烈推荐的，可以无脑下载
 
 ## 手机软件
 <a href="https://fudan.lanzoub.com/iewWw0ozxh0f">★***Fake Location 1.3.1.9***</a>  
@@ -12,8 +12,8 @@
 高考考研学高数必备的导数积分计算器，吹爆了的软件，提取密码是1ipm 
 <br><br><a href="https://fudan.lanzoub.com/i8PTB04vqtof">***VIP视频解析器*** </a>  
 我自己写的，移植到电脑上去的，提取密码是38u7
-<br><br><a href="https://yxssp.lanzoui.com/b646033/?%3E">★***滴答清单***</a>  
-高级版，我现在自己在用的，提取密码是45c3
+<br><br><a href="https://yxssp.lanzoui.com/b646033/?%3E">★***Ticktick (国内特供的叫：滴答清单)***</a>  
+我现在自己在用的一个日程计划软件，可以配套我下面发的电脑版使用,提取密码是45c3
 <br><br><a href="https://fudan.lanzoub.com/ihNdE082vdgb">***O Relax***</a>  
 OPPO官方出的音乐助眠软件，界面贼好看，但我有网易云会员（doge)，提取密码是gnbs
 <br><br><a href="https://fudan.lanzoub.com/iSQd7082uote">***MIX滤镜大师***</a>  
@@ -26,6 +26,8 @@ OPPO官方出的音乐助眠软件，界面贼好看，但我有网易云会员�
 没广告,激活码要你自己去网上找？提取密码是38u7
 
 ## 电脑软件
+<a href="https://fudan.lanzoub.com/iwaiD0ozxs0b">***Ticktick Window端(国内特供的叫：滴答清单)***</a>  
+我现在自己在用的一个日程计划软件，可以配套我下面发的手机版使用
 <a href="https://fudan.lanzoub.com/iYzZ10jc8f4j">***百度文库下载器***</a>  
 前段时间试了好用的
 <br><br><a href="https://fudan.lanzoub.com/i7HFS086ykqf">***OneDrive for Business直链生成工具***</a>  
