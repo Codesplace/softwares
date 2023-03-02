@@ -69,10 +69,10 @@ Windows系统更换全局字体，好像是个日本人开发的
 - <a href="https://fudan.lanzoub.com/iG4sK0oz39da">***Antdownload 1.0.4***</a>  
 百度网盘下载器，这种东西很容易失效，建议去搜最新的，或者在edge用软件小妹的插件
 <br><br>
-- <a href="https://fudan.lanzoub.com/iLrLf0oz3pyh">***ReNamer***</a>  
+- <a href="https://fudan.lanzoub.com/iFP7v0p029yb">***ReNamer***</a>  
 文件批量重命名工具便携版，我用的很少，但是功能确实强大
 <br><br>
-- <a href="https://fudan.lanzoub.com/iInPR0oz4ina">★***Snipaste***</a>  
+- <a href="https://fudan.lanzoub.com/iInPR0oz4ina">★***Snipaste 2.8.3-Beta***</a>  
 特别好用的第三方截图工具，可以打爆Windows原版自带的Screenshot
 <br><br>
 - <a href="https://fudan.lanzoub.com/iaD2o0oz4ref">★***解决桌面图标变白的bat文件***</a>  
@@ -93,13 +93,13 @@ Windows系统更换全局字体，好像是个日本人开发的
 - <a href="https://fudan.lanzoub.com/i3phi0oz6epa">***OPPOSans***</a>  
 OPPO官方字体包，可以搭配noMeiryoUI使用
 <br><br>
-- <a href="https://fudan.lanzoub.com/iR9Vi0oz6esd">★***起源字体包***</a>  
+- <a href="https://fudan.lanzoub.com/iR9Vi0oz6esd">★***起源字体***</a>  
 很好看的字体包，字体比较粗，我手机电脑上都在用
 <br><br>
-- <a href="https://fudan.lanzoub.com/iYkHS0oz6e8d">★***Topmost***</a>   
+- <a href="https://fudan.lanzoub.com/iYkHS0oz6e8d">★***Topmost 窗口置顶***</a>   
 把某个窗口显示最前面，相当于强制置顶某个软件
 <br><br>
-- <a href="https://fudan.lanzoub.com/ivQxl0ozhh2b">★***LockHunter***</a>  
+- <a href="https://fudan.lanzoub.com/ivQxl0ozhh2b">★***LockHunter 3.4.3.164**</a>  
 解决总是出现"xx软件正在运行"的冲突，无法删除的问题
 <br><br>
 - <a href="https://fudan.lanzoub.com/irwy60ozhmwb">★***驱动精灵 9.70***</a>  
