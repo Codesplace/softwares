@@ -35,6 +35,9 @@ OPPO官方出的音乐助眠软件，界面贼好看，但我有网易云会员(
 没广告,激活码要你自己去网上找？提取密码是**38u7**
 
 ## 电脑软件(Windows)
+- <a href="https://fudan.lanzoub.com/iwaiD0ozxs0b">***★Revo Uninstaller 2.4.2***</a>  
+强力卸载工具，我用了几年了，尽最大可能把软件删除干净
+<br><br>
 - <a href="https://fudan.lanzoub.com/iwaiD0ozxs0b">***★Ticktick Window (国内特供的叫：滴答清单)***</a>  
 我现在自己在用的一个日程计划软件，可以配套我下面发的手机版使用
 <br><br>
@@ -69,7 +72,7 @@ Windows系统更换全局字体，好像是个日本人开发的
 - <a href="https://fudan.lanzoub.com/iG4sK0oz39da">***Antdownload 1.0.4***</a>  
 百度网盘下载器，这种东西很容易失效，建议去搜最新的，或者在edge用软件小妹的插件
 <br><br>
-- <a href="https://fudan.lanzoub.com/iFP7v0p029yb">***ReNamer便携版***</a>  
+- <a href="https://fudan.lanzoub.com/iFP7v0p029yb">***ReNamer中文便携版 7.3***</a>  
 文件批量重命名工具便携版，我用的很少，但是功能确实强大
 <br><br>
 - <a href="https://fudan.lanzoub.com/iInPR0oz4ina">★***Snipaste 2.8.3-Beta***</a>  
