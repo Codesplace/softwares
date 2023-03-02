@@ -5,25 +5,25 @@
 
 ## 手机软件(安卓)
 <a href="https://fudan.lanzoub.com/iewWw0ozxh0f">★***Fake Location 1.3.1.9***</a>  
-安卓最强改定位软件，薅羊毛必备，这个是正版软件，正版就够用了,提取密码是favx
+安卓最强改定位软件，薅羊毛必备，这个是正版软件，正版就够用了,提取密码是**favx**
 <br><br><a href="https://fudan.lanzoub.com/i8Yew086wsza"> ***手机数据恢复大师*** </a>  
-高级版，没用过，想恢复太久之前肯定没戏，可以下来试试，提取密码是h96z
+高级版，没用过，想恢复太久之前肯定没戏，可以下来试试，提取密码是**h96z**
 <br><br><a href="https://fudan.lanzoub.com/ib3fZ0opunud">★***Wolfram Mathematica Pro*** </a>  
-高考考研学高数必备的图形导数积分计算器，吹爆了的软件，提取密码是1ipm 
+高考考研学高数必备的图形导数积分计算器，吹爆了的软件，提取密码是**1ipm**
 <br><br><a href="https://fudan.lanzoub.com/i8PTB04vqtof">***VIP视频解析器*** </a>  
 我自己写的，移植到手机端上去的，提取密码是38u7
 <br><br><a href="https://yxssp.lanzoui.com/b646033/?%3E">★***TickTick (国内特供的叫：滴答清单)***</a>  
-我现在自己在用的一个日程计划软件，可以配套我下面发的电脑版使用,提取密码是45c3
+我现在自己在用的一个日程计划软件，可以配套我下面发的电脑版使用,提取密码是**45c3**
 <br><br><a href="https://fudan.lanzoub.com/ihNdE082vdgb">***O Relax***</a>  
-OPPO官方出的音乐助眠软件，界面贼好看，但我有网易云会员(doge-，提取密码是gnbs
+OPPO官方出的音乐助眠软件，界面贼好看，但我有网易云会员(doge-，提取密码是**gnbs**
 <br><br><a href="https://fudan.lanzoub.com/iSQd7082uote">***MIX滤镜大师***</a>  
 喜欢拍照的朋友可以试一试，里面有很多滤镜，提取密码是dg3f
 <br><br><a href="https://fudan.lanzoub.com/iYaMq082te3c">***PS软件***</a>  
-手机上用的简单PS软件，电脑上的PS我也会用，但就是嫌太麻烦了，提取密码是ab30
+手机上用的简单PS软件，电脑上的PS我也会用，但就是嫌太麻烦了，提取密码是**ab30**
 <br><br><a href="https://fudan.lanzoub.com/iqwEp081sfad">★***AH视频***</a>  
-酷安的一个闲置项目(有朋友反应失效了)，有好多VIP视频，我妈天天用这个追剧，提取密码是hf7q
+酷安的一个闲置项目(有朋友反应失效了)，有好多VIP视频，我妈天天用这个追剧，提取密码是**hf7q**
 <br><br><a href="https://fudan.lanzoub.com/i8PTB04vqtof">***WPS Office 无广告专业版***</a>  
-没广告,激活码要你自己去网上找？提取密码是38u7
+没广告,激活码要你自己去网上找？提取密码是**38u7**
 
 ## 电脑软件(Windows)
 <a href="https://fudan.lanzoub.com/iwaiD0ozxs0b">***★Ticktick Window (国内特供的叫：滴答清单)***</a>  
