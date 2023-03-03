@@ -3,6 +3,8 @@
 - 互联网资源，均非本人开发，仅供逆向工程学习，侵权或者错误链接请联系<a href="mailto:elem@duck.com">我的邮箱</a>更换  
 - 标★为本人强烈推荐的，可以无脑下载
 
+## 【重磅！】<a href="">基于不忘初心2月Window版本打包的ISO文件</a>(晚上发布)
+
 ## 手机软件(安卓)
 - <a href="https://fudan.lanzoub.com/iewWw0ozxh0f">★***Fake Location 1.3.1.9***</a>  
 安卓最强改定位软件，薅羊毛必备，这个是正版软件，正版就够用了,提取密码是**favx**
